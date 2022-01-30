@@ -1,1 +1,0 @@
-# seattlemaps1950sogakii
